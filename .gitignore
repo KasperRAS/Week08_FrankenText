@@ -1,3 +1,9 @@
+# Unused .c files
+main_old.c
+
+# Flowchart sources
+*.dot
+
 # Prerequisites
 *.d
 
