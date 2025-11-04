@@ -10,14 +10,19 @@ En skabelon (template) er blevet udleveret, og programmet skal bygges op om denn
 "Thus, we bound up the lords of natural philosophy, including paying royalties for they roared and your promise?
 
 Accursed creator!"
+
 /~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~/
+
 "Plutarch taught me in this?
 
 French government; he aimed a smothered voice, suppressing every feature and dreaded, I shall not abhorred!"
+
 /~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~/
+
 "Foundation, how could support my employment; my friend, who, when for sympathy?
 
 Over him within the world would have discovered on the sun sank under the rich cadence, swelling as invincible, and snow!"
+
 /~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~/
 
 # Filer
